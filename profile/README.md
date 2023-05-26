@@ -7,6 +7,7 @@
 
 Liens utiles :
 - Site Internet • https://www.almyria.fr
+- Serveur Discord • https://discord.almyria.fr
 - Twitter • https://twitter.com/AImyria
 - Facebook • https://www.facebook.com/almyria.craft/
 - Nous contacter • https://www.almyria.fr/support
