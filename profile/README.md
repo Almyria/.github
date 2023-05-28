@@ -3,6 +3,8 @@
 
 ### Almyria est une communauté basée sur Discord ayant pour but de réunir des joueurs francophones autour de divers évènements et animations, tournant pour la plupart autour de jeux vidéos comme par exemple Minecraft.
 
+Envie de nous rejoindre dans l'équipe ? https://www.almyria.fr/postuler
+
 ----
 
 Liens utiles :
